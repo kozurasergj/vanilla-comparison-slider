@@ -4,4 +4,4 @@
 
 Made by Andrey Kudinov with ❤️
 
-Need help? Feel free to contact me [2499931@gmail.com](mailto:2499931@gmail.com?Subject=image-comparison-slider)
+Need help? Feel free to contact me [kozura.sergj33@gmail.com](mailto:2499931@gmail.com?Subject=image-comparison-slider)
